@@ -11,7 +11,7 @@
 
 😄 Pronouns: He/Him
 
-⚡ Fun fact: I love to build and sell gaming computers!
+⚡ Fun fact: I love to build gaming computers!
 
 📫 Reach me at: jamestrevorlandrum@gmail.com
 
